@@ -1,4 +1,4 @@
-# Hi, I'm Ivo Bryan 👋
+# Hi, I'm NTWALI SHEMA Ivo Bryan 👋
 
 ### Aspiring Full-Stack Developer | JavaScript
 
